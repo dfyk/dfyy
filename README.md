@@ -1,7 +1,7 @@
 # 东方影视 最新地址发布 
 ## 导 航 永 久 域 名HttpS://dfyy.tv
-## ⭐️ 👉访问地址：https://www.636df.com
-## ⭐️ 👉 备用导航 ：HttpS://dfyy.vip
+## ⭐️ 👉访问地址：https://www.653df.com
+## ⭐️ 👉 备用导航 ：HttpS://dfyk.tv
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️ 
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️  
 ### 📧 邮箱联系方式: dfykdz@gmail.com （发送任意内容获取最新地址）
